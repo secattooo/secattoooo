@@ -12,5 +12,5 @@ meu nome e maria
 
 
 
-![.]https://tenor.com/pt-BR/view/jewls-the-icon-gif-23140307
+![.](https://tenor.com/pt-BR/view/jewls-the-icon-gif-23140307)
 https://tenor.com/pt-BR/view/jewls-the-icon-gif-23140307
